@@ -1,0 +1,6 @@
+
+## Art. 3. -
+
+Le principe de toute Souveraineté réside essentiellement dans la Nation. Nul corps, nul individu ne peut exercer d'autorité qui n'en émane expressément.
+
+

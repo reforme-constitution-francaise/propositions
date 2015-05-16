@@ -1,0 +1,6 @@
+
+## Art. 16. -
+
+Toute Société dans laquelle la garantie des Droits n'est pas assurée, ni la séparation des Pouvoirs déterminée, n'a point de Constitution.
+
+
